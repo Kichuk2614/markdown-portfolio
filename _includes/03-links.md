@@ -1,1 +1,1 @@
-github.com/Kichuk2614
+www.github.com/Kichuk2614
